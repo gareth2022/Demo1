@@ -1,1 +1,1 @@
-friday class
+let me in
